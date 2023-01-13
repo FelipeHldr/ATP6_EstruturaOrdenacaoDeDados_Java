@@ -1,1 +1,0 @@
-Link para o vídeo de apresentação da atividade: https://youtu.be/cx4dmaZAJOA
